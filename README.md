@@ -1,0 +1,2 @@
+# gonix
+Perhatikan baik baik
